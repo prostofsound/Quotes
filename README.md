@@ -6,3 +6,5 @@ I knew it wasn't too important, but it made me sad anyway.
 Mañana voy a tener muchas cosas que recordar.
 
 Failure is never quite so frightening as regret.
+
+Forgive and confront.
